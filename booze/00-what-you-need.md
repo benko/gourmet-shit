@@ -8,6 +8,10 @@ Forget the strainer - strainers are for pussies. You can strain most drinks by
 cracking a thin opening between the tin and the glass and letting the fluid
 drain through it. The only notable exceptions would be drinks with small chunks
 of fruit, pips, and spices (like freshly squeezed lemon juice, cloves, etc.).
+Any old glass-sized sieve that you place over the top of the glass when pouring
+can get rid of those, and with practice, you will also learn to size the crack
+between glasses to keep the debris inside the shaker. Using properly sized ice
+cubes helps to keep them out as well.
 
 What you absolutely need instead is a measuring cup, preferably one with two
 sides: a 30ml and a 15ml one. You won't believe how much easier and quicker
