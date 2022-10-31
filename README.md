@@ -1,2 +1,1 @@
-# gourmet-shit
-Some random recipes for food and booze.
+Reorg & move to git.p0f.net/gourmet/
